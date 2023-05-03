@@ -1,4 +1,4 @@
 # QUICK
 
 
-eaglercraft 1.5?? i think its 1.5 :)
+eaglercraft 1.5.2?? i think its 1.5.2 :)
